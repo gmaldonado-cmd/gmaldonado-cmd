@@ -1,7 +1,7 @@
 # Aloha there, I'm Guillermo Maldonado 
 
 
-### Senior Compliance Specialist | Data Analysis Trainee at Code: You
+### Senior Compliance & Post-Closing Specialist | Data Analysis Trainee at Code: You
 ** Relocating to Hilo, Hawaii (April 2026)**
 
 
