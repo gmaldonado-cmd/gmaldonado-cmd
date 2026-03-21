@@ -1,4 +1,4 @@
-# Hi there, I'm Guillermo Maldonado 
+# Aloha there, I'm Guillermo Maldonado 
 
 
 ### Senior Compliance Specialist | Data Analysis Trainee at Code: You
